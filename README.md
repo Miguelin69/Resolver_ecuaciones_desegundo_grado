@@ -1,0 +1,2 @@
+# Resolver_ecuaciones_desegundo_grado
+s
